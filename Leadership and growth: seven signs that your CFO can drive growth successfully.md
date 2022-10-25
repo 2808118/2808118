@@ -32,3 +32,6 @@ A high-performing board of directors can be a competitive advantage. Strong CFOs
 If your CFO meets the first six criteria, you should also be well prepared for your fundraising and exit processes. The CFO and his/her team make a professional impression and have all relevant information available. KPIs are shown accurately. Plans are both ambitious and realistic. The data room is complete and up to date. A state-of-the-art pitch deck conveys a compelling message. Having business acumen, gravitas, and a deep understanding of the company’s business, strong CFOs also assist their CEOs in discussions and negotiations with potential investors and acquirers. 
 
 If you have a strong CFO, you will see the seven signs described above. You will be working with a commercial CFO who is a strategic partner for the whole organization.
+
+## Financial Strategy
+A finance strategy combines financial planning with strategic planning. The outcome is a functional roadmap that assesses current resources, costs and budget and aligns them with the company’s mission and goals. It sets a plan to align with enterprise goals to grow and innovate, despite changing and often unpredictable business conditions. A finance strategy sets priorities, manages trade-off decisions and minimize the costs of change to effectively finance critical initiatives.
