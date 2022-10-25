@@ -28,7 +28,7 @@ Strong CFOs know that ‘cash is king’. Their treasury department accurately f
 ## 6. You have excellent board meetings
 A high-performing board of directors can be a competitive advantage. Strong CFOs assist their chief executive officer (CEO) in this context, making sure the board receives the **meeting agenda and the reporting package** well in advance of board meetings. Clearly, well-prepared board meetings enable board members to make the most out of the time spent together, to ask value-creating questions, and to effectively contribute to relevant discussions. As the CEO and the CFO can tap into the knowledge of highly experienced board members, good board meetings can have a material positive impact on the business trajectory, fundraising and exit processes.
 
-## 7 Fundraising and exit processes are well prepared
+## 7. Fundraising and exit processes are well prepared
 If your CFO meets the first six criteria, you should also be well prepared for your fundraising and exit processes. The CFO and his/her team make a professional impression and have all relevant information available. KPIs are shown accurately. Plans are both ambitious and realistic. The data room is complete and up to date. A state-of-the-art pitch deck conveys a compelling message. Having business acumen, gravitas, and a deep understanding of the company’s business, strong CFOs also assist their CEOs in discussions and negotiations with potential investors and acquirers. 
 
 If you have a strong CFO, you will see the seven signs described above. You will be working with a commercial CFO who is a strategic partner for the whole organization.
