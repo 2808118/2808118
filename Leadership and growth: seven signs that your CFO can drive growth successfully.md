@@ -4,6 +4,8 @@
 
 > Based on my experience helping founders hire strong CFOs and working closely with CFOs on ensuring fast and efficient growth, I am convinced that looking out for the following seven signs can help you assess whether your CFO can drive growth successfully.
 
+![image](https://user-images.githubusercontent.com/90954432/197661050-3d419e0a-fcce-4b9b-bd0e-08ae655191ab.png)
+
 ## 1.  Your CFO is acting as a partner to the whole organization
 If your CFO limits himself/herself to being bookkeeper and guardian of cash, which usually means becoming a speed bump on the road to sustainable high growth, you are in big trouble. Strong CFOs are different. They embrace their role as a growth enabler and operate as a partner to the whole organization. They work collaboratively with all other departments, create cross-functional teams that create shared goals and joint plans, and lead crucial conversations with ease. Strong CFOs ask what they can do to help other teams make well-educated decisions. They educate other departments on how to think about **investing, key performance indicators (KPIs), and data-based decision making**. They demonstrate strong leadership and pro-actively grow the business efficiently and predictably.
 
